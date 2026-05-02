@@ -101,14 +101,7 @@ Toujours débrancher le système de charge avant la phase de décharge.
 
 Vidéo associée
 
-Lien YouTube :
+Lien YouTube :https://youtu.be/2aQS_2V3w8Q
 
-à compléter
 
-Conclusion
 
-Projet totalement excessif ?
-
-Probablement.
-
-Mais extrêmement amusant à concevoi
